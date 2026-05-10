@@ -47,8 +47,5 @@ Building simple, delicious, and healthy meals that fuel your body and mind.
 - Berries for antioxidants  
 - Low-bloat & refreshing
 
-**Pro tip**: Great time to take your Accutane dose if it’s around then!
-
----
 
 Enjoy! 💚
